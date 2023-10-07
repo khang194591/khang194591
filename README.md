@@ -1,4 +1,4 @@
-## Trịnh Đức Khang - Intern Developer
+## Trịnh Đức Khang - Fresher Developer
 ---
 
 ### **Overview**
