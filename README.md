@@ -1,4 +1,4 @@
-## Trịnh Đức Khang - Fresher Developer
+## Trịnh Đức Khang - Backend Developer
 ---
 
 ### **Overview**
